@@ -1,5 +1,5 @@
-### Hi there, I'm Ali - aka Alexiz
-## I'm a third year Computer Science student
+## Hi there, I'm Ali - aka Alexiz
+### I'm a third year Computer Science student
 - 📱🕸 I'm currently practicing mobile and web development.
 - 🖥 2022 goals: become better in several fields in software development and get more experience from internships and personal projects! 
 - ### Connect with me on Instagram: https://www.instagram.com/alexizzz__/
